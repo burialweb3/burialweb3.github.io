@@ -34,6 +34,6 @@ If you are an individual: you are dissatisfied with the team you are on and want
 
 For example, you have the privilege of managing a liquidity pool contract and can draw out liquidity. Or if you have a partial private key to a multi-signature wallet and can withdraw funds, we will arrange for a professional to contact you, tailor a plan to completely clear your name and ultimately transfer the funds to you anonymously, and ultimately ensure that nothing is lost!
 
-We execute our plans on a split basis, please contact us by E-Mail for a quote on the exact split: xxx
+We execute our plans on a split basis, please contact us by E-Mail for a quote on the exact split: burialweb3@protonmail.com
 
 We never deny this, we refuse to be hypocritical, we are clear in our goals, we look at ourselves and we are not ashamed.
